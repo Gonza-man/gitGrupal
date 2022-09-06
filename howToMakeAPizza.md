@@ -1,3 +1,4 @@
+
 ingredientes para hacer pizza 
 400 gramos de harina de trigo
 200 ml de agua tibia
@@ -5,11 +6,18 @@ ingredientes para hacer pizza
 15 gramos de levadura fresca
 1 pizca de sal
 
-1. para hacer la masa de pizza en un bowl ponemos el aceite, agua y levadura. Mezclamos y seguidamente le añadimos la harina y la pizca de sal. Una vez que tengamos mas o menos mezclado todo en el bowl lo pasamos a la encimera para amasar bien.
-2. ponemos un poco de harina en la encimera y comenzamos a amasar de 3 a 4 minutos 
-3. Ahora una vez lista, la dejamos reposar durante 1 hora
-4. ahora estiramos la masa y colocamos salsa de tomate encima para precocerla 
-5. una vez lista sacamos del horno, y agregamos los ingredientes. queso, aceituna, tomate, oregano, salame etc.
-6. volvemos a poner la pizza al horno durante 20 min a 200 grados  y listo. a disfruar!
+1. Desinfectamos superficies y herramientas
+2. Formar una corona con la harina cernida. espolvorear la sal por las orillas y en el centro de la corona agregar levadura y agua de a poco para ir formando la masa, desde el centro hacia afuera
+3. Dejar reposar por 15 min
+4. De ser necesario agregar más agua y el aceite.
+5. Luego formar una masa lisa, blanda y lubricar con aceite de oliva.
+6. Condimentar con especias y dejar fermentar hasta que aumente su tamaño
+7. Una vez fermentada, darle la forma con la mano o uslero
+8. pre-hornear la masa a 250° por 3 minutos
 
+Para el relleno:
 
+9. agregar salsa de tomate y esparcir bien, no debe ser muy abundante
+10. agregar queso rallado en forma de lluvia
+11. espolvorear nuez moscada sobre el queso
+12. meter al horno a 250° hasta derretir el queso
