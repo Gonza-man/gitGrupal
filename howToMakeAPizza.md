@@ -1,4 +1,4 @@
-Como hacer una pizza napolitana
+# Como hacer una pizza napolitana
 ---
 1. Preparar masa prehecha
 2. Agregar base de tomate
