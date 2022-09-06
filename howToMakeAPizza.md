@@ -1,9 +1,11 @@
-Ingredientes:
-para la masa:
-Harina
-Levadura
-Sal
-Agua
+
+ingredientes para hacer pizza 
+400 gramos de harina de trigo
+200 ml de agua tibia
+2 cucharadas de aceite de oliva
+15 gramos de levadura fresca
+1 pizca de sal
+
 1. Desinfectamos superficies y herramientas
 2. Formar una corona con la harina cernida. espolvorear la sal por las orillas y en el centro de la corona agregar levadura y agua de a poco para ir formando la masa, desde el centro hacia afuera
 3. Dejar reposar por 15 min
